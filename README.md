@@ -70,7 +70,7 @@ Have questions or want to collaborate?
 
 - 📧 Email: [korosbrian574@gmail.com](mailto:korosbrian574@gmail.com)  
 - 📞 Phone: +254 768 518 488  
-- 💼 LinkedIn: [Brian Kimutai](https://www.linkedin.com/in/brian-kimutai)
+- 💼 LinkedIn: [Brian Kimutai](https://www.linkedin.com/in/brian-kimutai-0888352b6/)
 
 ---
 
