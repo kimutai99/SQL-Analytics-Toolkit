@@ -74,4 +74,4 @@ Have questions or want to collaborate?
 
 ---
 
-> ✅ _“Clean SQL, Clear Insights.”_
+> 🎯 _“Transforming data into actionable insight — one SQL query at a time.”_
